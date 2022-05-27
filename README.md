@@ -7,6 +7,6 @@
 
 ✅ Feel Free to Contact Me :  
 
-Email: anuragband.dev@gmail.com
-Twitter: https://twitter.com/anuragBand10
-Linkedin: https://www.linkedin.com/in/anurag-band-7a5255170/
+🚩 Email: anuragband.dev@gmail.com
+🚩 Twitter: https://twitter.com/anuragBand10
+🚩 Linkedin: https://www.linkedin.com/in/anurag-band-7a5255170/
